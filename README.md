@@ -1,16 +1,17 @@
+
 # OKAV (国际镜像)
 :sunglasses::sunglasses:地址发布:sunglasses::sunglasses:
 ==
 ------
-:heart: :point_right: 【地址一】：https://okavu6sw.cc
+:heart: :point_right: 【地址一】：https://okavwcv1.cc
 ------
-:heart: :point_right: 【地址二】：https://okav.husavq9zf3.xyz
+:heart: :point_right: 【地址二】：https://okavemys.cc
 ------
-:heart: :point_right: 【地址三】 https://okav.w83168hd1b.xyz
+:heart: :point_right: 【地址三】 https://okavu6sw.cc
 -----
-:heart: :point_right: 【地址四】 ：https://okav.6vn7ykursg.xyz
+:heart: :point_right: 【地址四】 ：https://okav.husavq9zf3.xyz
 ------
-:heart: :point_right: 【地址五】 ：https://okav.pkfjc3bsff.xyz
+:heart: :point_right: 【地址五】 ：https://okav.w83168hd1b.xyz
 ------------
 :heart: :e-mail: 【邮箱联系方式】 ：okavdizhi@gmail.com （以上地址无法访问请发送任意内容获取最新地址）
 ------
