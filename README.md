@@ -3,15 +3,15 @@
 :sunglasses::sunglasses:地址发布:sunglasses::sunglasses:
 ==
 ------
-:heart: :point_right: 【地址一】：https://okav6884.cc
+:heart: :point_right: 【地址一】：https://okav4237.com
 ------
 :heart: :point_right: 【地址二】：https://okav8585.cc
 ------
-:heart: :point_right: 【地址三】 https://okavvzm3.cc
+:heart: :point_right: 【地址三】 https://okav4618.cc
 -----
-:heart: :point_right: 【地址四】 ：https://okavwcv1.cc
+:heart: :point_right: 【地址四】 ：https://okav3737.cc
 ------
-:heart: :point_right: 【地址五】 ：https://okavemys.cc
+:heart: :point_right: 【地址五】 ：https://okav1281.cc
 ------------
 :heart: :e-mail: 【邮箱联系方式】 ：okavdizhi@gmail.com （以上地址无法访问请发送任意内容获取最新地址）
 ------
