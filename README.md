@@ -14,7 +14,6 @@
 :heart: :point_right: 【地址五】 ：https://okav4618.cc
 ------
 # OKAV (轻量版)
-==
 ------
 :heart: :point_right: 【地址一】(推荐)：https://ntzguj.mqcqep.xyz
 ------
