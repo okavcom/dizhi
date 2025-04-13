@@ -18,12 +18,6 @@
 :heart: :point_right: 【地址一】(推荐)：https://ntzguj.mqcqep.xyz
 ------
 :heart: :point_right: 【地址二】：https://vjpp1p.bt6ssz.xyz
-------
-:heart: :point_right: 【地址三】 https://rr9mz6z8-f.xyz
------
-:heart: :point_right: 【地址四】 ：https://uqzfz-bqdd.xyz
-------
-:heart: :point_right: 【地址五】 ：https://jq1p8g-qxu.xyz
 ------------
 :heart: :e-mail: 【邮箱联系方式】 ：okavdizhi@gmail.com （以上地址无法访问请发送任意内容获取最新地址）
 ------
