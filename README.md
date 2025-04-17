@@ -3,27 +3,27 @@
 :sunglasses::sunglasses:地址发布:sunglasses::sunglasses:
 ==
 ------
-:heart: :point_right: 【地址一】(推荐)：https://okav8644.xyz
+:heart: :point_right: 【地址一】(推荐)：https://okav7442.xyz
 ------
-:heart: :point_right: 【地址二】：https://okav1433.com
+:heart: :point_right: 【地址二】：https://okav8644.xyz
 ------
-:heart: :point_right: 【地址三】 https://okav5249.xyz
+:heart: :point_right: 【地址三】 https://okav1433.com
 -----
-:heart: :point_right: 【地址四】 ：https://okav2425.xyz
+:heart: :point_right: 【地址四】 ：https://okav5249.xyz
 ------
-:heart: :point_right: 【地址五】 ：https://okav4237.com
+:heart: :point_right: 【地址五】 ：https://okav2425.xyz
 ------
 # OKAV (轻量版)
 ------
-:heart: :point_right: 【地址一】(推荐)：https://rqm21k.dxyuzj.xyz
+:heart: :point_right: 【地址一】(推荐)：https://kyuk3r.bmgc61.xyz
 ------
-:heart: :point_right: 【地址二】：https://aza2zk.69hkbw.xyz
+:heart: :point_right: 【地址二】：https://rqm21k.dxyuzj.xyz
 ------
-:heart: :point_right: 【地址三】 https://ntzguj.mqcqep.xyz
+:heart: :point_right: 【地址三】 https://aza2zk.69hkbw.xyz
 -----
-:heart: :point_right: 【地址四】 ：https://vjpp1p.bt6ssz.xyz
+:heart: :point_right: 【地址四】 ：https://ntzguj.mqcqep.xyz
 ------
-:heart: :point_right: 【地址五】 ：https://rr9mz6z8-f.xyz
+:heart: :point_right: 【地址五】 ：https://vjpp1p.bt6ssz.xyz
 ------------
 :heart: :e-mail: 【邮箱联系方式】 ：okavdizhi@gmail.com （以上地址无法访问请发送任意内容获取最新地址）
 ------
