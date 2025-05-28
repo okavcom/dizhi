@@ -1,16 +1,16 @@
-# OKAV (国际镜像) - 更新日期：2025-05-28
+# OKAV (国际镜像) - 更新日期：2025-05-29
 :sunglasses::sunglasses:地址发布:sunglasses::sunglasses:
 ==
 ------
-:heart: :point_right: 【地址一】(推荐)：https://okav9686.xyz
+:heart: :point_right: 【地址一】(推荐)：https://okav6212.xyz
 ------
-:heart: :point_right: 【地址二】：https://okav4942.xyz
+:heart: :point_right: 【地址二】：https://okav9686.xyz
 ------
-:heart: :point_right: 【地址三】 https://okav7245.xyz
+:heart: :point_right: 【地址三】 https://okav4942.xyz
 -----
-:heart: :point_right: 【地址四】 ：https://okav8634.xyz
+:heart: :point_right: 【地址四】 ：https://okav7245.xyz
 ------
-:heart: :point_right: 【地址五】 ：https://okav2859.xyz
+:heart: :point_right: 【地址五】 ：https://okav8634.xyz
 ------
 # OKAV (轻量版)
 ------
