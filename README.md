@@ -1,4 +1,4 @@
-# OKAV (国际镜像) - 更新日期：2025-06-30
+# OKAV (国际镜像) - 更新日期：2025-07-01
 :sunglasses::sunglasses:地址发布:sunglasses::sunglasses:
 ==
 ------
