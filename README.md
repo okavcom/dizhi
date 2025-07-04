@@ -1,28 +1,28 @@
-# OKAV (国际镜像) - 更新日期：2025-07-04
+# OKAV (国际镜像) - 更新日期：2025-07-05
 :sunglasses::sunglasses:地址发布:sunglasses::sunglasses:
 ==
 ------
-:heart: :point_right: 【地址一】(推荐)：https://okav3359.xyz
+:heart: :point_right: 【地址一】(推荐)：https://okav2571.xyz
 ------
-:heart: :point_right: 【地址二】：https://okav6224.xyz
+:heart: :point_right: 【地址二】：https://okav3359.xyz
 ------
-:heart: :point_right: 【地址三】 https://okav4532.xyz
+:heart: :point_right: 【地址三】 https://okav6224.xyz
 -----
-:heart: :point_right: 【地址四】 ：https://okav5196.xyz
+:heart: :point_right: 【地址四】 ：https://okav4532.xyz
 ------
-:heart: :point_right: 【地址五】 ：https://okav2923.xyz
+:heart: :point_right: 【地址五】 ：https://okav5196.xyz
 ------
 # OKAV (轻量版)
 ------
-:heart: :point_right: 【地址一】(推荐)：https://a737hg.xyz
+:heart: :point_right: 【地址一】(推荐)：https://r99umj.xyz
 ------
-:heart: :point_right: 【地址二】：https://wj8781.tncmv1.xyz
+:heart: :point_right: 【地址二】：https://a737hg.xyz
 ------
-:heart: :point_right: 【地址三】 https://a88vpz.xt9d67.xyz
+:heart: :point_right: 【地址三】 https://wj8781.tncmv1.xyz
 -----
-:heart: :point_right: 【地址四】 ：https://e4v8k3.jdmfk3.xyz
+:heart: :point_right: 【地址四】 ：https://a88vpz.xt9d67.xyz
 ------
-:heart: :point_right: 【地址五】 ：https://ttzfwt.f85pj4.xyz
+:heart: :point_right: 【地址五】 ：https://e4v8k3.jdmfk3.xyz
 ------------
 :heart: :e-mail: 【邮箱联系方式】 ：okavdizhi@gmail.com （以上地址无法访问请发送任意内容获取最新地址）
 ------
