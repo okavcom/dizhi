@@ -1,28 +1,28 @@
-# OKAV (国际镜像) - 更新日期：2025-07-13
+# OKAV (国际镜像) - 更新日期：2025-07-14
 :sunglasses::sunglasses:地址发布:sunglasses::sunglasses:
 ==
 ------
-:heart: :point_right: 【地址一】(推荐)：https://okav1956.xyz
+:heart: :point_right: 【地址一】(推荐)：https://okav6775.xyz
 ------
-:heart: :point_right: 【地址二】：https://okav7572.xyz
+:heart: :point_right: 【地址二】：https://okav1956.xyz
 ------
-:heart: :point_right: 【地址三】 https://okav9299.xyz
+:heart: :point_right: 【地址三】 https://okav7572.xyz
 -----
-:heart: :point_right: 【地址四】 ：https://okav1876.xyz
+:heart: :point_right: 【地址四】 ：https://okav9299.xyz
 ------
-:heart: :point_right: 【地址五】 ：https://okav9129.xyz
+:heart: :point_right: 【地址五】 ：https://okav1876.xyz
 ------
 # OKAV (轻量版)
 ------
-:heart: :point_right: 【地址一】(推荐)：https://xkwgje.xyz
+:heart: :point_right: 【地址一】(推荐)：https://fa9wk4.xyz
 ------
-:heart: :point_right: 【地址二】：https://pagdgm.xyz
+:heart: :point_right: 【地址二】：https://xkwgje.xyz
 ------
-:heart: :point_right: 【地址三】 https://srnyev.xyz
+:heart: :point_right: 【地址三】 https://pagdgm.xyz
 -----
-:heart: :point_right: 【地址四】 ：https://wy4yhk.xyz
+:heart: :point_right: 【地址四】 ：https://srnyev.xyz
 ------
-:heart: :point_right: 【地址五】 ：https://nmwj77.xyz
+:heart: :point_right: 【地址五】 ：https://wy4yhk.xyz
 ------------
 :heart: :e-mail: 【邮箱联系方式】 ：okavdizhi@gmail.com （以上地址无法访问请发送任意内容获取最新地址）
 ------
