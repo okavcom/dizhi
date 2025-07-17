@@ -1,28 +1,19 @@
-# OKAV (国际镜像) - 更新日期：2025-07-17
+# OKAV (轻量版)
 :sunglasses::sunglasses:地址发布:sunglasses::sunglasses:
 ==
+
 ------
-:heart: :point_right: 【地址一】(推荐)：https://okav1791.xyz
-------
-:heart: :point_right: 【地址二】：https://okav5789.xyz
-------
-:heart: :point_right: 【地址三】 https://okav6298.xyz
------
-:heart: :point_right: 【地址四】 ：https://okav6775.xyz
-------
-:heart: :point_right: 【地址五】 ：https://okav1956.xyz
-------
-# OKAV (轻量版)
-------
-:heart: :point_right: 【地址一】(推荐)：https://tdu598.xyz
+:heart: :point_right: 【地址一】：https://tdu598.xyz
 ------
 :heart: :point_right: 【地址二】：https://jdph92.xyz
 ------
-:heart: :point_right: 【地址三】 https://ek5cmg.xyz
+:heart: :point_right: 【地址三】 ：https://ek5cmg.xyz
 -----
 :heart: :point_right: 【地址四】 ：https://fa9wk4.xyz
 ------
 :heart: :point_right: 【地址五】 ：https://xkwgje.xyz
+------
+:heart: :point_right: 【国际永久地址】 ：okav.com
 ------------
 :heart: :e-mail: 【邮箱联系方式】 ：okavdizhi@gmail.com （以上地址无法访问请发送任意内容获取最新地址）
 ------
