@@ -3,15 +3,15 @@
 ==
 
 ------
-:heart: :point_right: 【地址一】：https://typ5kj.xyz
+:heart: :point_right: 【地址一】：https://yrnk43.xyz
 ------
-:heart: :point_right: 【地址二】：https://hkarjc.xyz
+:heart: :point_right: 【地址二】：https://typ5kj.xyz
 ------
-:heart: :point_right: 【地址三】 ：https://rfcwkv.xyz
+:heart: :point_right: 【地址三】 ：https://hkarjc.xyz
 -----
-:heart: :point_right: 【地址四】 ：https://h7fevj.xyz
+:heart: :point_right: 【地址四】 ：https://rfcwkv.xyz
 ------
-:heart: :point_right: 【地址五】 ：https://6ad8gn.xyz
+:heart: :point_right: 【地址五】 ：https://h7fevj.xyz
 ------
 :heart: :point_right: 【国际永久地址】 ：okav.com
 ------------
