@@ -3,15 +3,15 @@
 ==
 
 ------
-:heart: :point_right: 【地址一】：https://okuucxr3.xyz
+:heart: :point_right: 【地址一】：https://okuktfe8.xyz
 ------
-:heart: :point_right: 【地址二】：https://okjmnwm9.xyz
+:heart: :point_right: 【地址二】：https://okuucxr3.xyz
 ------
-:heart: :point_right: 【地址三】 ：https://ok78jw2m.xyz
+:heart: :point_right: 【地址三】 ：https://okjmnwm9.xyz
 -----
-:heart: :point_right: 【地址四】 ：https://okmseshn.xyz
+:heart: :point_right: 【地址四】 ：https://ok78jw2m.xyz
 ------
-:heart: :point_right: 【地址五】 ：https://okdk9su4.xyz
+:heart: :point_right: 【地址五】 ：https://okmseshn.xyz
 ------
 :heart: :point_right: 【国际永久地址】 ：okav.com
 ------------
