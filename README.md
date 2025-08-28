@@ -7,11 +7,11 @@
 ------
 :heart: :point_right: 【地址二】：https://oke246vu.xyz
 ------
-:heart: :point_right: 【地址三】 ：https://okwa9jus.xyz
+:heart: :point_right: 【地址三】 ：https://w2pdgpnag6.87ts2pc7.xyz
 -----
-:heart: :point_right: 【地址四】 ：https://okpnw68w.xyz
+:heart: :point_right: 【地址四】 ：https://okwa9jus.xyz
 ------
-:heart: :point_right: 【地址五】 ：https://ok4djc2n.xyz
+:heart: :point_right: 【地址五】 ：https://okpnw68w.xyz
 ------
 :heart: :point_right: 【国际永久地址】 ：okav.com
 ------------
