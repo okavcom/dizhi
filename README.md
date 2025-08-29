@@ -3,15 +3,15 @@
 ==
 
 ------
-:heart: :point_right: 【地址一】：https://ok7dueuv.xyz
+:heart: :point_right: 【地址一】：https://htxk6sm3cg.x5dwk47t.xyz
 ------
-:heart: :point_right: 【地址二】：https://oke246vu.xyz
+:heart: :point_right: 【地址二】：https://ok7dueuv.xyz
 ------
-:heart: :point_right: 【地址三】 ：https://w2pdgpnag6.87ts2pc7.xyz
+:heart: :point_right: 【地址三】 ：https://oke246vu.xyz
 -----
-:heart: :point_right: 【地址四】 ：https://okwa9jus.xyz
+:heart: :point_right: 【地址四】 ：https://w2pdgpnag6.87ts2pc7.xyz
 ------
-:heart: :point_right: 【地址五】 ：https://okpnw68w.xyz
+:heart: :point_right: 【地址五】 ：https://okwa9jus.xyz
 ------
 :heart: :point_right: 【国际永久地址】 ：okav.com
 ------------
