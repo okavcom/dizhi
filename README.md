@@ -5,13 +5,13 @@
 ------
 :heart: :point_right: 【地址一】：https://okav.ek5n88rc.icu
 ------
-:heart: :point_right: 【地址二】：https://okav.65s7n67t.icu
+:heart: :point_right: 【地址二】：https://okav.raaf8sr5.icu
 ------
-:heart: :point_right: 【地址三】 ：https://okav.ryphptp4.icu
+:heart: :point_right: 【地址三】 ：https://okav.5neygaya.icu
 -----
-:heart: :point_right: 【地址四】 ：https://okav.r7dpxsd8.icu
+:heart: :point_right: 【地址四】 ：https://okav.2wwdw2gk.icu
 ------
-:heart: :point_right: 【地址五】 ：https://okav.2wwdw2gk.icu
+:heart: :point_right: 【地址五】 ：https://okav.65s7n67t.icu
 ------
 :heart: :point_right: 【国际永久地址】 ：okav.com
 ------------
