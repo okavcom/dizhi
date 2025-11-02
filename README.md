@@ -3,15 +3,15 @@
 ==
 
 ------
-:heart: :point_right: 【地址一】：https://okav.gxkm67p3.icu
+:heart: :point_right: 【地址一】：https://okav.shmhpygx.icu
 ------
-:heart: :point_right: 【地址二】：https://okav.dsdh5twg.icu
+:heart: :point_right: 【地址二】：https://okav.gxkm67p3.icu
 ------
-:heart: :point_right: 【地址三】 ：https://okav.xswrkx6k.icu
+:heart: :point_right: 【地址三】 ：https://okav.dsdh5twg.icu
 -----
-:heart: :point_right: 【地址四】 ：https://okav.3rct64ex.icu
+:heart: :point_right: 【地址四】 ：https://okav.xswrkx6k.icu
 ------
-:heart: :point_right: 【地址五】 ：https://okav.g542nryn.icu
+:heart: :point_right: 【地址五】 ：https://okav.3rct64ex.icu
 ------
 :heart: :point_right: 【国际永久地址】 ：okav.com
 ------------
